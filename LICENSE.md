@@ -1,4 +1,4 @@
-#  
+#  instant Scripts for escape waves for lucky blocks offers the most advanced escape waves for lucky blocks Script, with invisibility and silent aim.
 
 
 
